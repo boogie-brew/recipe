@@ -1,0 +1,1 @@
+Fill a large barrel or garbage can about one-eighth full of aged compost, then fill the barrel with water. Let the mix sit a week to ten days or so stirring occasionally. Place a portion of the mix in a watering can diluting with clear water until the tea is light brown and use.
