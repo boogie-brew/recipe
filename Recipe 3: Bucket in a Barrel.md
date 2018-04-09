@@ -1,0 +1,1 @@
+Take an old plastic or tin household bucket and punch several holes in it. Fill the bucket with aged compost and hang it with an S-hook in a larger barrel filled with water and let the mix brew a week or two. (Again about 1 part compost to 5 parts water.) Draw from the larger barrel as needed diluting to the color of weak tea and use.
